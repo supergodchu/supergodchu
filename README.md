@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @supergodchu
+- 👀 I’m interested in games like Minecraft, roblox and honkai: star rail
+- 🌱 I’m a secondary student
+- 💞️ I’m looking for someone to play games with me
+- 📫 talk to me at: ducletechnology@gmail.com
